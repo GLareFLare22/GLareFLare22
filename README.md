@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @GLareFLare22
+- 🌱 I’m currently learning to cry without anyone knowing.
